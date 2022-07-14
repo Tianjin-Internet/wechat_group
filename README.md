@@ -1,1 +1,1 @@
-![image](https://github.com/Tianjin-Internet/wechat_group/blob/master/20220531165420.jpg)
+进群二维码更新详见 discussions
